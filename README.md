@@ -1,2 +1,3 @@
-# prithika18.github.io
-Thoughts, projects, and passions – all in one place.
+# 🚀 Explore. Build. Repeat.
+
+Welcome to my little corner of the internet.
